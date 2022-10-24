@@ -1,4 +1,4 @@
-# RAIZEL-MD BY RAIZEL SAMA
+# ᖇᗩIᘔᗴᒪᗷOT_ᗰᗪ
 # البوت العربي رقم 1 بالعالم
 <p align="center"> <a href="github.com/sanuwaofficial"><img align="center" src="https://telegra.ph/file/39272916fd98efa5fec86.jpg"/></a>
 
